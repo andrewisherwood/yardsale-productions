@@ -30,7 +30,7 @@ Have we caught your attention? Drop us a line and tell us what you've got and we
 Let's keep it simple. This is our contact information:
 
 Yardsale Productions Ltd
-7 Victory Avenu
+7 Victory Avenue
 Morden SM4 6DL
 United Kingdom
 
